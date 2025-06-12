@@ -1,0 +1,1 @@
+# handballteamcreator-privacy
